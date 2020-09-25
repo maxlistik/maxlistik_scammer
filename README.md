@@ -18,6 +18,6 @@ Did i get it? **Well no**
 Did i get my money back? **No**
 Was it worth the nerves? **Oh fucking hell no**
 
-If you get contacted from this buy, better just say no and move on!
+**If you get contacted from this weird invidiual, better just say NO and move on!**
 
 If you are interested, [here is the full _fucking_ convo](https://maxlistik.github.io/maxlistik_scammer/). Have fun!
