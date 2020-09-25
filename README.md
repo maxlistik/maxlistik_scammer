@@ -3,7 +3,7 @@ _If anyone else ever ends up in the position of dealing with this person, i hope
 
 Also known as @maxlistoff, @maxlistovvv & @maxlistik on Telegram. 
 
-Also known for his Youtube Channel  aka. "ИНТЕРНЕТ ЗАРАБОТОК":
+Also known for his Youtube Channel TRAVELMONEY777 aka. "ИНТЕРНЕТ ЗАРАБОТОК":
 https://www.youtube.com/channel/UCYJsAJwVO2IRYIQirXhtlmQ
 https://www.youtube.com/c/TRAVELMONEY777
 
